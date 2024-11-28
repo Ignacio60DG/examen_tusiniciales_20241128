@@ -1,0 +1,2 @@
+“Manual de
+usuario de la App. Versión inicial”.[[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[A[B[A[B[Cu[A[[[[3~[3~[3~[A[C[C[C[D[[C[C[C[C[C[C[C[C[C[C[A[[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[CManual de usiario de la App. Versión Inicial .[[[[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[B[A[B[A[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D
